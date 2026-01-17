@@ -121,7 +121,6 @@ If you think I’d be a good fit, feel free to connect!
 
 📫 **LinkedIn:** [https://www.linkedin.com/in/nandhinin0506/](https://www.linkedin.com/in/nandhinin0506/)  
 🧑‍💻 **GitHub:** [https://github.com/NandhiniN0506](https://github.com/NandhiniN0506)  
-📧 **Email:** your-email@example.com
 
 ---
 
